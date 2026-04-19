@@ -51,7 +51,7 @@ Frontend-разработчик, который любит превращать 
 ## 🌐 Connect with me
 
 - GitHub: https://github.com/KirillProgramSIte  
-- Telegram: https://t.me/yourname  
+- Telegram: [@LordDarkkkkb](https://t.me/LordDarkkkkb)  
 
 ---
 
